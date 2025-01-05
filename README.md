@@ -1,1 +1,0 @@
-# UAS-Kecerdasan-Buatan_Lovensia-Catherine_221011400850
